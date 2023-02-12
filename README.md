@@ -1,2 +1,2 @@
 # Belajar
-# Bersama adzim dan faunza
+# Bersama adzim dan fauzan
